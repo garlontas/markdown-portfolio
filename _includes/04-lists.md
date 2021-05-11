@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Learn 🤔
+2. Understand
+3. Use 🖱️
